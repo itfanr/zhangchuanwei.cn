@@ -1,2 +1,0 @@
-# zhangchuanwei.cn
-zhangchuanwei.cn
